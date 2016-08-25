@@ -15,7 +15,6 @@ Im folgenden wird die Fachschaft Humanwissenschaften der Universität Bamberg mi
 ## §2 Zweck
 
 1. Zweck des Vereins ist es die Arbeit der Fachschaft ideell, finanziell und sachlich zu unterstützen.
-Die bedeutet unter anderem.
 2. Um den Zweck des Vereins erfüllen zu können soll der Verein Mittel einwerben und verwalten.
 
 ## §3 Gemmeinnützugkeit
